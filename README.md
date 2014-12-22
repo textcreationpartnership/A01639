@@ -32,9 +32,112 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Memoriæ honoratissimi domini Francisci, Baronis de Verulamio, Vice-Comitis Sancti Albani sacrum1626A
+
+1. Lectori S.
+
 #####Body#####
-Memoriæ honoratissimi domini Francisci, Baronis de Verulamio, Vice-Comitis Sancti Albani sacrum1626A
+
+1. Deploratio Obitûs omnia doctissimi &
+clarissimi viri D. Francisci Bacon
+S. Albanensis.
+
+1. Baconi Opera literaria vocantur ad Rogum.
+
+1. In Obitum Incomparabilis Francisci
+Vicecomitis Sancti Albani;
+Baronis Verulamii.
+
+1. In Obitum Honoratissimi viri ac Domini,
+D. Francisci de Verulamio, Vicecomitis
+Sancti Albani, nuperi Angliae Cancellarii.
+
+1. Memoriae Meritísque Honoratissimi D. Francisci D. Verulamii
+Vice-Comitis Sant-Albani.
+
+1. In Obitum Honoratissimi Domini
+Francisci Baconii, magni nupertotius
+Angliae Cancellarii. &c.
+
+1. In eundem.
+
+1. In Obitum nobilissimi Domini Francisci
+Baronis Verulamii. &c.
+
+1. In obitum Illustrissimi Clarissimíque Herois, Domini
+Francisci Baconi, Baronis de Verulamio, 〈 in non-Latin alphabet 〉.
+
+1. In Obitum Honoratissimi Baronis
+Verulamiensis, &c.
+
+1. De Connubio Rosarum.
+
+1. In obitum nobilissimi doctissimique viri Dom. Fran:
+Bacon, Baronis Verulamiensis, &c.
+
+1. In obitum Honoratissimi Domini, D.
+Francisci Vicecomitis Sancti Albani, Baronis
+Verulamij, viri Incomparabilis.
+
+1. In obitum Nobilissimi-viri, Francisci
+Domini Verulam, Vicecomitis
+Sancti Albani.
+
+1. In Clarissimi viri Francisci Bacon, Baronis
+de Verulamio, Vicecomitis Sancti
+Albani, memoriam.
+
+1. In Domini Francisci Baconi iam
+mortui Historiam vitae & Mortis.
+
+1. In eundem virum eloquentissimum.
+
+1. In obitum literatissimi iuxta ac nobilissimi viri Francisci Domini Verulam Vicecomitis Sancti Albani.
+
+1. In obitum eiusdem.
+
+1. In obitum eiusdem, &c.
+
+1. Ad vtrasque Academias carmen
+〈 in non-Latin alphabet 〉.
+
+1. In obitum Illustrissimi Domini Verulamij,
+Vicecomitis Sancti Albani.
+
+1. Ad Viatorem, Honoratissimi Domini,
+FRANCISCI Domini VERVLAM,
+Monumentum inspicientem.
+
+1. In obitum illustrissimi & spectatissimi tum à literis
+tum à prudentiâ & natiuâ nobilitate viri, Dni Francisci
+Bacon, Vicecomitis Sti Albani, &c.
+
+1. In obitum Honoratissimi Domini,
+Dni. Francisci Baronis de Verulamio,
+Vicecomitis S. Albani.
+
+1. Carmen sepulchrale.
+
+1. Ad Statuam literatissimi veréque nobilissimi
+viri Dni Francisci Bacon.
+
+1. De Inundatione nuperâ Aquarum.
+
+1. In obitum Honoratissimi Viri Francisci
+Bacon, Vice-comitis SANCTI ALBANI,
+Baronis de VERVLAM, &c.
+
+1. In obitum Nobilissimi viri, Francisci
+Baconis, olim magni Sigilli
+ANGLIAE Custodis.
+
+1. In Languorem diuturnum, sed mortem
+Inopinatam, Nobilissimi Domini sui,
+Vice-Comitis Sti Albani.
+
+1. In obitum Domini Francisci Baconi,
+Baronis de Verulamio, & totius Angliae
+nuperi CANCELLARII.
+
 **Types of content**
 
   * There are 531 **verse** lines!
